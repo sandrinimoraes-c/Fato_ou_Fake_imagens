@@ -1,0 +1,1 @@
+# Fato_ou_Fake_imagens
